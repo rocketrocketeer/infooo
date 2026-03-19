@@ -5,7 +5,7 @@
 
 
 
-  im wabie / harvey! he / him only, he / they for close friends,, taken ! < scott 3 ![1115014555433709688](https://github.com/user-attachments/assets/3e2fc10e-64e2-447e-8a10-7a95daf79397)
+hi im nickolas/nick but would perfer you call me wabie, harvey or oliver,, robotkin, bunnibot (bunniboy] and catbot (catboy] he / him only, he / they for close friends,, taken ! < scott 3 ![1115014555433709688](https://github.com/user-attachments/assets/3e2fc10e-64e2-447e-8a10-7a95daf79397)
 ![1113882855832027237](https://github.com/user-attachments/assets/92df1770-46f8-4457-b2b9-7509ed13a686)
 ![1113867881311109210](https://github.com/user-attachments/assets/73910661-e81c-4ac3-ac27-7c193c42337e)
 
