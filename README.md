@@ -21,7 +21,7 @@ i use phrases like : "holy macaroni" 'holy guacamole' 'how about avacaNO''your s
 
 big leafy and two from bfdi kin and irl,, doubles dni,, i wont harrass doubles !!
 
-![](https://i.postimg.cc/4dBVqxNg/ub5v6e.webp)
+![](https://i.postimg.cc/hjSV2dns/e1eqkp.webp)
 
 
 i love my bf just a LITTLE bitt..,,,../j i love him so much
