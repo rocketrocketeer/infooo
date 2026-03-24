@@ -10,6 +10,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤtaken ,, i love my boyfrienndd
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤtwo and leafy kinnie,, dni dbls
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://i.postimg.cc/Jhcdkn1D/5cvuev.gif)![pronouns.cc !](https://pronouns.cc/@wabisabi) ![strawpage !](https://wabisabiiii.straw.page) ![pronouns.page !](https://en.pronouns.page/@wabisabiii)
+![](https://i.postimg.cc/Jhcdkn1D/5cvuev.gif)![pronouns.cc !](https://pronouns.cc/@wabisabi) ![strawpage !](https://wabisabiiii.straw.page) ![pronouns.page !](https://en.pronouns.page/@wabisabiii)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="230" height="30" alt="51u9x2" src="https://github.com/user-attachments/assets/46e634bb-1816-44c7-9dae-9eda2c60192f" />
